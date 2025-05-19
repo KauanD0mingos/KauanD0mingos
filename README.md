@@ -1,4 +1,4 @@
-## Olá!! Kauan Domingos aqui👋
+## Olá!! Kauan Souza aqui👋
 
 Estudante de Ciências da Computação 
 
